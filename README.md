@@ -9,3 +9,9 @@ Reiss, Franziska. “Socioeconomic inequalities and mental health problems in ch
 
 
 McLaughlin, Katie. “Socioeconomic Status and Adolescent Mental Disorders” Am J Public Health, vol. 102, no. 9, 2012, pp. 1742–1750. Google Scholar, doi:10.2105/AJPH.2011.300477. Accessed 23, November, 2022   
+ 
+ Carter, K N, et al. “What Is the Association between Wealth and Mental Health?” Journal of Epidemiology & Community Health, BMJ Publishing Group Ltd, 1 Mar. 2009, jech.bmj.com/content/63/3/221. 
+Poverty and Mental Disorders: Breaking the Cycle in Low ... - the Lancet. www.thelancet.com/pdfs/journals/lancet/PIIS0140-6736(11)60754-X.pdf.  
+
+Nielson, Jake. “Socioeconomic Status & Mental Health.” YouTube, YouTube, 4 Apr. 2017, https://www.youtube.com/watch?v=iT-wuQrudvY.  
+
