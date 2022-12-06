@@ -19,4 +19,23 @@ Nielson, Jake. “Socioeconomic Status & Mental Health.” YouTube, YouTube, 4 A
   
 Reiss, Franziska. “Socioeconomic inequalities and mental health problems in children and adolescents: A systematic review.” Social Science & Medicine, vol. 90, 2013, pp. 24-31. Google Scholar, doi:10.1016/j.socscimed.2013.04.026. Accessed 21, November, 2022 
 
+Images:
+Gould, Jackie. “Mental Health Resource Round-Up.” Fauntleroy Church, UCC in West Seattle, Fauntleroy Church, UCC in West Seattle, 25 Jan. 2021, https://www.fauntleroyucc.org/congregator-posts/mental-health-resource-round-up.  
 
+
+“How to Learn a Language through TED Talks.” Lingholic, 29 Dec. 2016, https://www.lingholic.com/how-to-learn-languages-through-ted-talks/. 
+
+
+“Medium Image - Mental Health Clipart Black and White, HD PNG Download(772x618) - Pngfind.” PngFind.com, https://www.pngfind.com/mpng/bwJmxb_medium-image-mental-health-clipart-black-and-white/. 
+
+
+“The Mental Health Continuum Is a Better Model for Mental Health.” Delphis Learning, 30 June 2020, https://delphis.org.uk/mental-health/continuum-mental-health/. 
+
+
+Nicholson, Sidney. “Does the Cost of College Tuition Have an Impact on Student's Mental Health?” Medium, Medium, 3 Nov. 2017, https://medium.com/@sidvnicholson/does-the-cost-of-college-tuition-have-an-impact-on-students-mental-health-fdb646869c17. 
+
+
+Sin, Jason. “Socioeconomic Status Causing Inequality in Education.” Medium, Medium, 3 May 2020, https://medium.com/@jasonsin510/socioeconomic-status-causing-inequality-in-education-e3f595a1120e.  
+
+
+Stein, Alex. “5 Ways Colleges and Universities Are Working to Improve Mental Health on Campus.” LIGHTSTREAM, 16 Nov. 2022, https://thelightstreamgroup.com/blogs/education/5-ways-colleges-and-universities-are-working-to-improve-mental-health-on-campus/. 
