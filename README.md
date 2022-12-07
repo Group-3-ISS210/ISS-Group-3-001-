@@ -5,7 +5,7 @@ Carter, K N, et al. “What Is the Association between Wealth and Mental Health?
 Poverty and Mental Disorders: Breaking the Cycle in Low ... - the Lancet. www.thelancet.com/pdfs/journals/lancet/PIIS0140-6736(11)60754-X.pdf.
 
 
-Gjerustad, Cay, and Tilmann Von Soest. “Socio-Economic Status and Mental Health – the Importance of Achieving Occupational Aspirations.” Journal of Youth Studies, vol. 15, no. 7, 2012, pp. 890–908. Google Scholar, https://doi.org/10.1080/13676261.2012.693590. Accessed 21, November 2022 
+Gjerustad, Cay, and Tilmann Von Soest. “Socio-Economic Status and Mental Health – the Importance of Achieving Occupational Aspirations.” <em>Journal of Youth Studies</em>, vol. 15, no. 7, 2012, pp. 890–908. Google Scholar, https://doi.org/10.1080/13676261.2012.693590. Accessed 21, November 2022 
 
 
 Jakobsen, Andreas. “Opening the Black Box of the Relationship between Neighborhood Socioeconomic Status and Mental Health: Neighborhood Social-Interactive Characteristics as Contextual Mechanisms.” Health and Place 77, 2022, pg. 1-7 MSU library,  doi:10.1016/j.healthplace.2022.102905. Accessed 21, November, 2022
