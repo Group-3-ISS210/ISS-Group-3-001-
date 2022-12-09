@@ -23,6 +23,10 @@ McLaughlin, Katie. “Socioeconomic Status and Adolescent Mental Disorders” <e
 Nielson, Jake. “Socioeconomic Status & Mental Health.” YouTube, YouTube, 4 Apr. 2017, https://www.youtube.com/watch?v=iT-wuQrudvY. 
 
 
+Pijpker, Roald. Kamp, Dani van der. Vader, Sarah . Broeder, Lea den. Wagemakers, Annemarie. “Socioeconomic status and mental health during the COVID-19 crisis: Are sense of coherence, sense of community coherence and sense of national coherence predictors for mental health?” Health Psychology Report, Vol 10, Iss 2, (2022) Pp 149-155. <em>Termedia Publishing House</em>, doi:10.5114/hpr.2022.114527. Accessed 23 November 2022.
+
+
+
 Reiss F, Meyrose AK, Otto C, Lampert T, Klasen F, Ravens-Sieberer U. Socioeconomic status, stressful life situations and mental health problems in children and adolescents: <em>Results of the German BELLA cohort-study</em>. PLoS One. 2019 Mar 13;14(3):e0213700. doi: 10.1371/journal.pone.0213700. PMID: 30865713; PMCID: PMC6415852.
   
   
