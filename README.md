@@ -51,7 +51,7 @@ TEDTalks.jpeg   “How to Learn a Language through TED Talks.” Lingholic, 29 D
 “Medium Image - Mental Health Clipart Black and White, HD PNG Download(772x618) - Pngfind.” PngFind.com, https://www.pngfind.com/mpng/bwJmxb_medium-image-mental-health-clipart-black-and-white/. 
 
 
-“The Mental Health Continuum Is a Better Model for Mental Health.” Delphis Learning, 30 June 2020, https://delphis.org.uk/mental-health/continuum-mental-health/. 
+ISSfront.png   “The Mental Health Continuum Is a Better Model for Mental Health.” Delphis Learning, 30 June 2020, https://delphis.org.uk/mental-health/continuum-mental-health/. 
 
 
 Nicholson, Sidney. “Does the Cost of College Tuition Have an Impact on Student's Mental Health?” Medium, Medium, 3 Nov. 2017, https://medium.com/@sidvnicholson/does-the-cost-of-college-tuition-have-an-impact-on-students-mental-health-fdb646869c17. 
