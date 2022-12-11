@@ -40,6 +40,8 @@ Yunfan,Zhang Dai,Su Yingchhn,Chen Tan,Min Xinlin,Chen “effect of socioeconomic
 
 
 Images:
+
+
 Gould, Jackie. “Mental Health Resource Round-Up.” Fauntleroy Church, UCC in West Seattle, Fauntleroy Church, UCC in West Seattle, 25 Jan. 2021, https://www.fauntleroyucc.org/congregator-posts/mental-health-resource-round-up.  
 
 
