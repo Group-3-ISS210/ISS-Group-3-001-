@@ -48,7 +48,7 @@ mentalhealth.png   Gould, Jackie. “Mental Health Resource Round-Up.” Fauntle
 TEDTalks.jpeg   “How to Learn a Language through TED Talks.” Lingholic, 29 Dec. 2016, https://www.lingholic.com/how-to-learn-languages-through-ted-talks/. 
 
 
-“Medium Image - Mental Health Clipart Black and White, HD PNG Download(772x618) - Pngfind.” PngFind.com, https://www.pngfind.com/mpng/bwJmxb_medium-image-mental-health-clipart-black-and-white/. 
+mentalhealth2.png  “Medium Image - Mental Health Clipart Black and White, HD PNG Download(772x618) - Pngfind.” PngFind.com, https://www.pngfind.com/mpng/bwJmxb_medium-image-mental-health-clipart-black-and-white/. 
 
 
 ISSfront.png   “The Mental Health Continuum Is a Better Model for Mental Health.” Delphis Learning, 30 June 2020, https://delphis.org.uk/mental-health/continuum-mental-health/. 
