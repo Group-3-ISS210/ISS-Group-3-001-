@@ -54,10 +54,10 @@ mentalhealth2.png  “Medium Image - Mental Health Clipart Black and White, HD P
 ISSfront.png   “The Mental Health Continuum Is a Better Model for Mental Health.” Delphis Learning, 30 June 2020, https://delphis.org.uk/mental-health/continuum-mental-health/. 
 
 
-Nicholson, Sidney. “Does the Cost of College Tuition Have an Impact on Student's Mental Health?” Medium, Medium, 3 Nov. 2017, https://medium.com/@sidvnicholson/does-the-cost-of-college-tuition-have-an-impact-on-students-mental-health-fdb646869c17. 
+Stress.png   Nicholson, Sidney. “Does the Cost of College Tuition Have an Impact on Student's Mental Health?” Medium, Medium, 3 Nov. 2017, https://medium.com/@sidvnicholson/does-the-cost-of-college-tuition-have-an-impact-on-students-mental-health-fdb646869c17. 
 
 
 socioeconomicstatus.jpeg   Sin, Jason. “Socioeconomic Status Causing Inequality in Education.” Medium, Medium, 3 May 2020, https://medium.com/@jasonsin510/socioeconomic-status-causing-inequality-in-education-e3f595a1120e.  
 
 
-Stein, Alex. “5 Ways Colleges and Universities Are Working to Improve Mental Health on Campus.” LIGHTSTREAM, 16 Nov. 2022, https://thelightstreamgroup.com/blogs/education/5-ways-colleges-and-universities-are-working-to-improve-mental-health-on-campus/. 
+mentalhealth3.jpeg  Stein, Alex. “5 Ways Colleges and Universities Are Working to Improve Mental Health on Campus.” LIGHTSTREAM, 16 Nov. 2022, https://thelightstreamgroup.com/blogs/education/5-ways-colleges-and-universities-are-working-to-improve-mental-health-on-campus/. 
